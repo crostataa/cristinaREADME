@@ -1,4 +1,4 @@
-![cover](Life is Strange - Arcadia Bay menu backround 1440p No Title.jpeg")
+![cover]()
 
 <p align= "left">E a mano a mano vedrai con il tempo <br>
 Lì sopra il suo viso lo stesso sorriso <br>
